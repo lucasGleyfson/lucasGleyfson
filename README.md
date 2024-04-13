@@ -1,3 +1,3 @@
-### Olá! Eu ou o Lucas Barros👋
+### Olá! Eu sou o Lucas Barros👋
 
 
